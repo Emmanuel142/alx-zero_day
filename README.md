@@ -1,1 +1,1 @@
-Let go hard
+Let go harder
